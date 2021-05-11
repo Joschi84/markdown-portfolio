@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* table-tennis and soccer
+* resident evil 2,4 and Zelda OoT
+* solving pussles
